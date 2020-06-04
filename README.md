@@ -43,7 +43,7 @@ get to the crib all wrong yeah)
 
 all the circles aren't paying off
 ya ya
-saying what you want through your prayers
+saying what you want through prayers
 won't bring it back
 
 ```
