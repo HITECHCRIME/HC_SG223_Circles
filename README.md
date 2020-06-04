@@ -12,11 +12,11 @@ Description.
 
 > **Title:** Cricles  / **Featuring:** MOTHNODE
 
-> **Production:**  / **Lyrics:** 
+> **Production:** X / **Lyrics:** MOTHNODE
 
 > **Beat:** SYLER
 
-> **Narrative Design:**
+> **Narrative Design:** MOTHNODE
 
 > **Music Video Credits:**
 
