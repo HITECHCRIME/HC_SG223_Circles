@@ -48,8 +48,8 @@ get to the crib all wrong yeah)
 all the circles aren't paying off - ya ya
 saying what you want through prayers
 won't bring it back 
-casting spell for a price
-it's naught for a reason
+casting spell(s) for a price
+it's naught for a reason (is a naught for a reason)
 gotta pay it off with your soul ya ya
 
 ```
