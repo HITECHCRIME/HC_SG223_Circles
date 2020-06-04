@@ -33,7 +33,7 @@ better the reason to draw all your circles
 for wishes that won't be fulfilled
 
 salt it out
-salt it out before other rituals
+sort it out, damn rituals 
 
 get to the crib all wrong
 get to the crib all wrong yeah
