@@ -31,12 +31,12 @@ get to the crib all wrong yeah
 (what's)
 better the reason to draw all your circles
 for wishes that won't be fulfilled
-
-salt it out
-sort it out, damn you father of rituals 
+salt it out. sort it out
+damn you father of rituals 
 
 let's say
-say you want this say you want it
+say you want this 
+say you want it
 then it's done
 
 get to the crib all wrong <----- change this one?)
@@ -45,15 +45,12 @@ get to the crib all wrong yeah
 (get to the crib all wrong
 get to the crib all wrong yeah)
 
-all the circles aren't paying off
-ya ya
+all the circles aren't paying off - ya ya
 saying what you want through prayers
 won't bring it back 
-ya ya
-
 casting spell for a price
 it's naught for a reason
-gotta pay it off with your soul
+gotta pay it off with your soul ya ya
 
 ```
 
