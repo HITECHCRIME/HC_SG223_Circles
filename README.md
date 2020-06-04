@@ -2,13 +2,15 @@
 
 # MOTHNODE_ Circles
 
+Rituals of the city, rituals of humans, repeating patterns, mantras.
+
 **Listen now:** 
 
 ## Project Data
 
 Description.
 
-> **Title:**  / **Featuring:** 
+> **Title:** Cricles  / **Featuring:** 
 
 > **Production:**  / **Lyrics:** 
 
