@@ -35,6 +35,10 @@ for wishes that won't be fulfilled
 salt it out
 sort it out, damn you father of rituals 
 
+let's say
+say you want this say you want it
+then it's done
+
 get to the crib all wrong <----- change this one?)
 get to the crib all wrong yeah
 
