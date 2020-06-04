@@ -35,7 +35,7 @@ for wishes that won't be fulfilled
 salt it out
 sort it out, damn you father of rituals 
 
-get to the crib all wrong
+get to the crib all wrong <----- change this one?)
 get to the crib all wrong yeah
 
 (get to the crib all wrong
@@ -44,7 +44,12 @@ get to the crib all wrong yeah)
 all the circles aren't paying off
 ya ya
 saying what you want through prayers
-won't bring it back
+won't bring it back 
+ya ya
+
+casting spell for a price
+it's naught for a reason
+gotta pay it off with your soul
 
 ```
 
