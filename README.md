@@ -28,6 +28,24 @@ get to the crib all wrong yeah
 get to the crib all wrong
 get to the crib all wrong yeah
 
+(what's)
+better the reason to draw all your circles
+for wishes that won't be filled out
+
+salt it out
+salt it out before other rituals
+
+get to the crib all wrong
+get to the crib all wrong yeah
+
+(get to the crib all wrong
+get to the crib all wrong yeah)
+
+all the circles aren't paying off
+ya ya
+saying what you want through your prayers
+won't bring anything back
+
 ```
 
 ## Lore Notes
